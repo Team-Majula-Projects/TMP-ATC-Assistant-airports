@@ -3,4 +3,4 @@
 2. Нажмите на иконку скачивания и скачайте файл в папку программы
 3. Наслаждайтесь использованием!
    
-[team-majula-projects.ru](https://team-majula-projects.ru:1788)
+[team-majula-projects.ru](http://team-majula-projects.ru:1788)
